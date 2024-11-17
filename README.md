@@ -1,4 +1,4 @@
-# PCS
+# CASO PRÁCTICO PCS
 Esquemas preconceptuales/pre-conceptual schemas
 
 Join our Group:
